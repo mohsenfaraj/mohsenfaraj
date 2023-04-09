@@ -2,7 +2,7 @@
 
 👀 I’m interested in Web Developing, Creating Content, Health and Nature.
 
-💻 I'm Computer Engineering Student at Urmia Univercity of Technology
+💻 I'm Computer Engineering Student at Urmia University of Technology
 
 📫 How to reach me:
 -   @MohsenFarajIG -> instagram
